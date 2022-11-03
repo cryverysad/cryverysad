@@ -1,0 +1,8 @@
+ - Hello everyone.
+ - My online name is Shushan,call me cryvery.
+ - Here I will update some content or things. (You can also come here to find me if you lose contact.)
+ - My B station platform name: Fwの喵(b站)
+ - My WeChat ID: Ssyld-ZN(微信)
+ - The above is the latest news so far.
+ - If you can't contact me, it means that I am busy 24 hours a day.
+ - Bye-Bye~
